@@ -9,9 +9,11 @@
 - https://www.binance.com/en/square/profile/sajjad10736
   - [Source](https://www.binance.com/en/square/post/6159529436057)
 - https://www.binance.com/en/square/profile/square-creator-a525a6961d1f
-  - everyday earn $48 doller - without any investlink - h_tps://bnbpanther.com/?r=1813* [Source](https://www.binance.com/en/square/post/6146476181234)
+  - everyday earn $48 doller - without any investlink - `h_tps://bnbpanther.com/?r=1813*` [Source](https://www.binance.com/en/square/post/6146476181234)
 - https://www.binance.com/en/square/profile/square-creator-fida100223
-  - earn 0.03 USDT in every 5 minutes.  ✔Without any  investment and very simple.  https://cashlyfaucet.com?ref=3024* [Source](https://www.binance.com/en/square/post/6156050445098)
+  - earn 0.03 USDT in every 5 minutes.  ✔Without any  investment and very simple.  `https://cashlyfaucet.com?ref=3024*` [Source](https://www.binance.com/en/square/post/6156050445098)
 - https://www.binance.com/en/square/profile/square-creator-90432cb8d003
-  - https://www.binance.com/en/square/post/6147469209898 
+  - [Source](https://www.binance.com/en/square/post/6147469209898)
+- https://www.binance.com/en/square/profile/square-creator-fe7a0518f1ca
+  - I received $1538 USDT today from a New Usdt earning website 🎉... This site is super Legal ✅ Sign up 👇Copy link `https://evboxvip.com/#/register?ic=72003*` [Source](https://www.binance.com/en/square/post/6161155346617)
 - Next comming!
