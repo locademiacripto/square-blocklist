@@ -18,4 +18,6 @@
   - I received $1538 USDT today from a New Usdt earning website 🎉... This site is super Legal ✅ Sign up 👇Copy link `https://evboxvip.com/#/register?ic=72003*` [Source](https://www.binance.com/en/square/post/6161155346617)
 - https://www.binance.com/en/square/profile/square-creator-58f330388
   - 65000 TRX daily earning from basic account. (Payment in 1 minute) `https://www.tronscan.best/index.html#/register/50346*` - [Source](https://www.binance.com/en/square/post/6198689685746)
+- https://www.binance.com/en/square/profile/inditrader
+  - [Source](https://www.binance.com/en/square/post/6491735888625)
 - Next comming!
