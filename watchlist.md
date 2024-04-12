@@ -12,4 +12,5 @@
 
 ## Posts
 
-- 
+- Support Me: I lost my money 💵.. Give A Tip $100 Please. 😔
+  - [Source](https://www.binance.com/en/square/post/6672676082474)
